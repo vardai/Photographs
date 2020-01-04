@@ -1,1 +1,1 @@
-# Photographs
+# Photography
